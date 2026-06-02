@@ -1,6 +1,6 @@
 OL28 (Student: Krisha Pala)
 
-Video Link: https://griffitheduau-my.sharepoint.com/:v:/g/personal/krisha_pala_griffithuni_edu_au/IQAvmp0UHL05Taw_IcPjEwH5AbqDFFIJEgS0qmpoqYAq02M?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJPbmVEcml2ZUZvckJ1c2luZXNzIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXciLCJyZWZlcnJhbFZpZXciOiJNeUZpbGVzTGlua0NvcHkifX0&e=X4fqyR 
+Video Link: https://griffitheduau-my.sharepoint.com/:v:/g/personal/krisha_pala_griffithuni_edu_au/IQBOmyX1TOVrTILkwGLhxAW0AQl71TC1T_E_Si0Q_VeV_R4?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJPbmVEcml2ZUZvckJ1c2luZXNzIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXciLCJyZWZlcnJhbFZpZXciOiJNeUZpbGVzTGlua0NvcHkifX0&e=VpgpgI
 
 Fire-Rescue-Rover (FRR): Project Overview
 
